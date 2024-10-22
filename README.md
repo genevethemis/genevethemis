@@ -1,5 +1,5 @@
 ## Hi there 👋
-👋 Hi, I’m @genevethemis
+👋 Hi, I’m Thémis
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on stuff
